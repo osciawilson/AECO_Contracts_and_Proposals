@@ -10,7 +10,7 @@ Parties to the contract:
 |Company<br>Address<br>Address|Company<br>Address<br>Address|Company<br>Address<br>Address|
 
 
-Date of original execution: 11/29/2015
+The date of original execution: Nov. 29th, 2015
 
 #### **Agreement**
 
